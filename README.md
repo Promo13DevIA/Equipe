@@ -38,18 +38,22 @@ https://www.linkedin.com/in/nicolas-churlet-5b39b0a7/
 https://github.com/Gfeuillas <br/>
 https://www.linkedin.com/in/guillaume-feuillas/
 
--Abdelrazak Sakhri :  
+### Abdelrazak Sakhri :  
 https://www.linkedin.com/in/abdelrazak-sakhri/
 
--Mourad Boucetta : https://github.com/nexuskalinux
+### Mourad Boucetta :
+https://github.com/nexuskalinux<br/>
 https://www.linkedin.com/in/mourad-boucetta/
 
 
--Toska Sahara: https://github.com/nchurlet
+### Toska Sahara:
+https://github.com/nchurlet <br/>
 https://www.linkedin.com/in/toska-sahara-a48794163/
 
--Karine Erlinger: https://github.com/KarineErlinger
+### Karine Erlinger: 
+https://github.com/KarineErlinger <br/>
 https://www.linkedin.com/in/karine-erlinger-a976b4146/
 
--Lamine Ziyoute : https://github.com/lamineia
+### Lamine Ziyoute:
+https://github.com/lamineia <br/>
 https://www.linkedin.com/in/lamine-ziyoute-506764112/
