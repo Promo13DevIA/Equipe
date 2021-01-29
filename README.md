@@ -10,8 +10,8 @@ https://www.linkedin.com/in/alison-patou-56476063/
 
 ## Apprenante
 
-### Farah Oumoundden : <br/> 
-https://github.com/Alsopha
+### Farah Oumoundden : 
+https://github.com/Alsopha <br/> 
 https://www.linkedin.com/in/farah-o-063a16134/
 
 ### Orkun Selçuk:
